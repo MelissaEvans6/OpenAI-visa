@@ -6,6 +6,8 @@
 
 ## 🌍 为什么越来越多人需要 KJCARD？
 
+<img width="1659" height="902" alt="屏幕截图 2026-11-17 024505" src="https://github.com/user-attachments/assets/bfd13682-a589-4dbe-89d3-86eaf079307f" />
+
 随着全球数字经济和跨境电商的发展，海外支付已经成为许多用户的日常需求。
 
 无论是购买海外正版游戏、订阅 AI 软件，还是预订国际酒店、购买海外商品，传统银行卡在跨境支付过程中都可能遇到各种限制。
@@ -37,6 +39,9 @@ Netflix、Spotify、ChatGPT 等海外服务通常采用周期性自动扣款模�
 ---
 
 ## ⚡ KJCARD 核心产品优势
+
+<img width="1648" height="715" alt="1" src="https://github.com/user-attachments/assets/78089fe9-71c8-4345-bc6e-7e0245f8c32f" />
+
 
 ### 01. Visa / Mastercard 双卡组织支持
 
@@ -179,4 +184,4 @@ KJCARD 结合 Visa / Mastercard 虚拟卡选择、虚拟货币充值、免 KYC �
 
 🚀 **[立即注册 KJCARD，开启全球虚拟卡服务](https://kjcard.com/?join=277561)**
 
-*风险提示：虚拟卡并非银行存款或传统银行信用额度。卡片发行主体、发卡地区、实际费用、支持币种、交易限制及服务保障请以 KJCARD 官方公布的信息为准。虚拟货币具有价格波动及转账不可逆等风险，请遵守所在地法律法规。*
+<img width="988" height="513" alt="免KYC虚拟信用卡 VISA 跨境支付   海外订阅 专注帮助国内用户解决跨境支付难题" src="https://github.com/user-attachments/assets/76862564-ce8b-4d38-93fb-b6ca4b0c6668" />
