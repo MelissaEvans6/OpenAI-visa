@@ -34,7 +34,7 @@ Netflix、Spotify、ChatGPT 等海外服务通常采用周期性自动扣款模�
 
 **KJCARD 致力于为全球数字消费用户提供更加灵活的虚拟卡支付选择，让跨境线上消费更加简单。**
 
-👉 **[立即注册 KJCARD，开启全球虚拟卡服务](https://kjcard.com/?join=277561)**
+👉 **[立即注册 KJCARD，开启全球虚拟卡服务](https://kjcard.com/?join=667463680120565343)**
 
 ---
 
@@ -122,7 +122,7 @@ KJCARD 不仅提供虚拟卡产品，更希望为全球数字消费用户打造�
 
 访问 KJCARD 官方注册页面：
 
-👉[立即注册 KJCARD，开启全球虚拟卡服务](https://kjcard.com/?join=277561)
+👉[立即注册 KJCARD，开启全球虚拟卡服务](https://kjcard.com/?join=667463680120565343)
 
 根据页面提示创建账户并完成必要的安全设置。
 
@@ -182,6 +182,6 @@ KJCARD 结合 Visa / Mastercard 虚拟卡选择、虚拟货币充值、免 KYC �
 
 **KJCARD，让数字资产与全球线上消费连接得更加便捷！**
 
-🚀 **[立即注册 KJCARD，开启全球虚拟卡服务](https://kjcard.com/?join=277561)**
+🚀 **[立即注册 KJCARD，开启全球虚拟卡服务](https://kjcard.com/?join=667463680120565343)**
 
 <img width="988" height="513" alt="免KYC虚拟信用卡 VISA 跨境支付   海外订阅 专注帮助国内用户解决跨境支付难题" src="https://github.com/user-attachments/assets/76862564-ce8b-4d38-93fb-b6ca4b0c6668" />
